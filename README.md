@@ -52,3 +52,23 @@ Join me in celebrating this extraordinary journey where SQL and Power BI merged,
 
 ![283158964-64cdacd3-0c75-464d-8a60-3a047f91a7fd](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/d5338be4-5f27-4100-8c2f-b22c00b021eb)
 
+![2023](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/f310f406-dd6a-4f72-8193-6a682e5f81eb)
+![2024](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/8c778abb-f766-4233-80a7-ec85a4726edc)
+![2027](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/dd869848-6110-457f-bac9-7eee8e5584f7)
+![Part3_Province](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/8117c635-d777-49f2-86d4-f33e54651ecc)
+![Crime](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/fdf16755-4087-48bb-b23a-622eb79df410)
+![pollution](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/893ee302-d40c-411f-b3eb-5c96be02f72b)
+![Part3_Province](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/f0de4ec5-a767-4bbe-9d65-3efb5b48897e)
+![National](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/d8066aea-812f-4a00-9307-df32bf115e29)
+
+![Kilimani](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/a1981d3d-f507-47a8-831a-a75d60c0058a)
+![Hawassa](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/297ce82b-0b2b-4b63-afd9-548b8797750c)
+![Amanzi](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/e64ef450-06a3-46cc-9b39-f690e73bb5eb)
+![Akatsi](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/d83a3785-e0ce-43cb-8d5d-fcfa12f695ba)
+![Sokoto](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/7b2df57a-5462-4c02-9382-4c6bad1a779d)
+![Queues](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/bf902f6e-fdbf-4d3b-9634-17a8fc8656b4)
+
+
+
+
+
