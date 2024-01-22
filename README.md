@@ -50,3 +50,5 @@ I want to extend my heartfelt gratitude to alx_africa, ExploreAI Academy and Mas
 
 Join me in celebrating this extraordinary journey where SQL and Power BI merged, transforming data into actionable insights. Together, let's make a lasting impact and pave the way for a brighter future!
 
+![283158964-64cdacd3-0c75-464d-8a60-3a047f91a7fd](https://github.com/Omarahmed988/Unraveling-the-Secrets-of-Maji-Ndogo/assets/125869446/d5338be4-5f27-4100-8c2f-b22c00b021eb)
+
