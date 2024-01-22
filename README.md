@@ -50,4 +50,3 @@ I want to extend my heartfelt gratitude to alx_africa, ExploreAI Academy and Mas
 
 Join me in celebrating this extraordinary journey where SQL and Power BI merged, transforming data into actionable insights. Together, let's make a lasting impact and pave the way for a brighter future!
 
-#datascience #dataanalysis #dataanalytics #datacleaning #datThe above code represents a README.md file that you can use to document your Maji Ndogo project on GitHub. You can create a new file named `README.md` in your GitHub repository and copy the code into it. Make sure to modify and update the content according to your project's specific details and achievements.
